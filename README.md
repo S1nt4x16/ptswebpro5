@@ -1,4 +1,4 @@
-![Screenshot (261)](https://user-images.githubusercontent.com/50811498/190840638-2499321e-b41d-4399-b800-138299ed464b.png)
+![WhatsApp Image 2022-09-17 at 11 45 22](https://user-images.githubusercontent.com/50811498/190840894-0358bce4-89e5-448f-a114-80d2e6be65e7.jpeg)
 
 
 
